@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Rank8484
+- 👀 I’m interested in agile and product transformation
+- 🌱 I’m currently learning modern engineering practices
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
